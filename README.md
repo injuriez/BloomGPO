@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.postimg.cc/RF9vz8Dp/Featured-GPO-First-Sea-Map-Guide-All-Locations.png" alt="Logo">
+  <img src="https://i.postimg.cc/0N1spFPK/image-2025-11-29-195413863.png" alt="Logo">
 </p>
 
 
